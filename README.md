@@ -1,0 +1,1 @@
+# smartinternz-amazon-project
